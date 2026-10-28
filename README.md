@@ -1,0 +1,1 @@
+# Kenya Retail Intelligence Platform
